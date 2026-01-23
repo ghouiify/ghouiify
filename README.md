@@ -4,15 +4,11 @@
 
   <img src="https://komarev.com/ghpvc/?username=cxstiiel&color=000000&style=plasic&label=　𓆩♱𓆪　">
 
-<p align="center">
-                                                                            
-</p
- 
-![Example Gif](https://files.catbox.moe/lhkj1a.png)
 
-<p align="center">
-                                                                            
-</p
+ 
+![Example Gif](https://files.catbox.moe/ybfpoc.png)
+
+
  
 [rentry](https://rentry.co/ghouiify)      ‎ ‎ ‎ ‎ ‎      ‎ [atabook](https://ghouiify.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ [boyfriend](https://github.com/Gutlust) 
 
