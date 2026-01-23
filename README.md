@@ -1,12 +1,12 @@
 <div align="center">
  
-  𝘢𝘯𝘥 𝘮𝘦 , 𝘪 𝘢𝘮 𝘺𝘰𝘶𝘳 𝘥𝘢𝘨𝘨𝘦𝘳 ˚ʚ♡ɞ˚
-
-<img src="https://komarev.com/ghpvc/?username=cxstiiel&color=000000&style=plasic&label=　𓆩♱𓆪　">
+  𝘴𝘤𝘳𝘢𝘵𝘤𝘩 𝘮𝘦 , 𝘣𝘪𝘵𝘦 𝘮𝘦 , 𝘬𝘪𝘴𝘴 𝘮𝘺 𝘢𝘴𝘴 ☣︎ــــــــــﮩ٨ـ
+  
+<img src="https://komarev.com/ghpvc/?username=cxstiiel&color=000000&style=plasic&label=´ཀ`">
 
 
  
-![Example Gif](https://files.catbox.moe/ybfpoc.png)
+![Example Gif](https://files.catbox.moe/34tu8q.png)
 
 
  
