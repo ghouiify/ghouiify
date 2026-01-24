@@ -5,7 +5,7 @@
 
 
  
-<img src="https://files.catbox.moe/5vaaoq.png" width=400>
+<img src="https://files.catbox.moe/5vaaoq.png" width=350>
 
 
  
