@@ -9,10 +9,10 @@
 
 
  
- <img src="https://file.garden/ZjKjCNClQA2p3YBz/graphics/button/pepiag.gif"> ⠀　˳⠀⠀⠀*ben*⠀⠀ノ⠀⠀𝗹𝗲𝗼𝗻 .⠀ ᛝ 
+ <img src="https://file.garden/ZjKjCNClQA2p3YBz/graphics/button/pepiag.gif"> ⠀　˳⠀⠀⠀*ben*⠀⠀ノ⠀⠀6teen .⠀ ᛝ 
 
-𝗶𝗻𝗳𝗽⠀⠀⠀⠀♰　⠀𓏼⠀　6teen𓈒 ⠀⠀⠀<img src="https://file.garden/ZjKjCNClQA2p3YBz/graphics/pix/red/tumblr_2a9833528681d7df8d8b2cdec5b15b2f_48d22ade_75.webp" width=25>
+'hikaru' indou 𝗶𝗿𝗹⠀⠀⠀⠀♰　⠀𓏼⠀　𝙞𝙡𝙢𝙗𝙛𝙨𝙢𓈒 ⠀⠀⠀<img src="https://file.garden/ZjKjCNClQA2p3YBz/graphics/pix/red/tumblr_2a9833528681d7df8d8b2cdec5b15b2f_48d22ade_75.webp" width=25>
 
-𓍚　⠀i love my [partner](https://github.com/Gutlust)　⠀゛ ⸝⸝ .ᐟ ⋆
+𓍚　⠀	<ins>mostly</ins> offtab⠀⠀⏝⠀⠀w2int　⠀゛ ⸝⸝ .ᐟ ⋆
 
 </div> 
